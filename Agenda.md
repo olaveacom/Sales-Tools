@@ -39,17 +39,17 @@ I flip through these photos in the standard photo app on my iPad with a one word
 
 ![7. ](http://photos-d.ak.instagram.com/hphotos-ak-frc/1742791_463754097101875_1743184789_n.jpg)
 
-> 7. 
+> The Ola package. 
 
 <br />
 
 ![8. ](http://photos-h.ak.instagram.com/hphotos-ak-ash/10358376_793904697294479_959716765_n.jpg)
 
-> 8. 
+> Price.
 
 <br />
 
 ![9. ](http://photos-a.ak.instagram.com/hphotos-ak-prn/10401814_516875338435080_547715930_n.jpg)
 
-> 9. 
+> Next step.
 
