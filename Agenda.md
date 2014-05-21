@@ -33,7 +33,7 @@ I flip through these photos in the standard photo app on my iPad with a one word
 
 ![6. ](http://photos-g.ak.instagram.com/hphotos-ak-prn/923978_732803406771718_1872217354_n.jpg)
 
-> I want you to start 
+> I want you to start thinking about who you know who need my help.
 
 <br />
 
