@@ -10,7 +10,7 @@ I flip through these photos in the standard photo app on my iPad with a one word
 
 ![2.](http://photos-e.ak.instagram.com/hphotos-ak-prn/10362256_236302276577940_375058090_n.jpg)
 
-2. The potential customer starts talking about her organization and her role in it. I do my best to keep her talking until our pre arranged end time.
+2. 2. The potential customer starts talking about her organization and her role in it. I do my best to keep her talking until our pre arranged end time.
 
 
 ![3. ](http://photos-f.ak.instagram.com/hphotos-ak-prn/924377_410439169099357_1427135916_n.jpg)
