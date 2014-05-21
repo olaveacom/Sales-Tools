@@ -23,7 +23,7 @@ I flip through these photos in the standard photo app on my iPad with a one word
 
 > 4. Where are you now? These first four photos will take up most of our time. Sometimes the customer will explain what her problem is in bridging the gap between "GOALS" and "ARE NOW". 
 
-
+<br />
 
 ![5. ](http://photos-c.ak.instagram.com/hphotos-ak-prn/1168852_739706389386226_2004069829_n.jpg)
 
