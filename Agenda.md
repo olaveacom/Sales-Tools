@@ -2,7 +2,9 @@ I flip through these photos in the standard photo app on my iPad with a one word
  
 
 ![I tell a little about our organization and my role in it.](http://photos-d.ak.instagram.com/hphotos-ak-prn/10326584_281882358648163_1979255148_n.jpg)
+
 1. I tell a little about our organization and my role in it. Three sentences.
+
 
 
 
